@@ -26,6 +26,7 @@
 
 ## 2. Bot is not allowed here
 
+
  <br>
 <a href="https://chat.whatsapp.com/EfzzqyQ0JANCvyATuhAaKe"><img alt="WhatsApp" src="https://img.shields.io/badge/-Whatsapp%20Group-blue?style=for-the-badge&logo=whatsapp&logoColor=white"/></a> 
    <br>
